@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+A few of my favorite things!
+
+-Family 👍
+- Nature 🌎
+  - Trees 🌳
+  - Animals 🐱
+- Computers 💻
+- Video Games 🎮
